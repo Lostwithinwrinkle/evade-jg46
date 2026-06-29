@@ -1,4 +1,4 @@
-
+new evade Scripts is the best evade Script, featuring auto-sell and no cooldown. Safe and powerful for all your needs.
 
 
 
